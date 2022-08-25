@@ -1,2 +1,2 @@
 # FnfVsSlayer
-I'm back into fnf so I'm remaking this mod :D
+behold a mod that was meant to be a great mod is now back into development :D
